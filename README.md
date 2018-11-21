@@ -1,0 +1,1 @@
+http://zmihor.blogspot.com/2018/10/dziedziny-dyscypliny-czasopisma-wstepna.html
